@@ -1,0 +1,1 @@
+# Parcial-1er-corte---2022
